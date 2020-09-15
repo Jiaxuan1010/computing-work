@@ -1,3 +1,3 @@
 # computing-work
-*h***e***l***l***o*
-**h***i*
+It was a nice day.
+yes.
